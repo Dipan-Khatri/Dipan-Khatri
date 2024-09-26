@@ -16,8 +16,7 @@
 
 - 📫 How to reach me **kcdipan13@gmail.com**
 
-- 📄 Know about my experiences [In progress—stay tuned for updates!](In progress—stay tuned for updates!)
-
+- 📄 Know about my experiences [In progress—stay tuned for updates!]
 - ⚡ Fun fact **I am Funny**
 
 <h3 align="left">Connect with me:</h3>
